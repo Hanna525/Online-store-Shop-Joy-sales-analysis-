@@ -1,0 +1,1 @@
+[Відкрити презентацію в Google Slides]https://docs.google.com/presentation/d/e/2PACX-1vQkeCQoBJKUhtTxSTy4P0VGhYKnvNRpCU5z3ccsyKO0g_3-aArYXxd1jIId3TLZaXvE40P5v9adcUjJ/pub?start=false&loop=false&delayms=3000
